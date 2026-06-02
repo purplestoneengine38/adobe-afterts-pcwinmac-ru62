@@ -1,4 +1,4 @@
-# 
+# Código aberto Adobe After Effects extensões para Mac OS | Exclusivo Adobe After Effects extensões para PC Windows. Com processamento em lote e camadas de forma — otimizado para máximo desempenho em cada plataforma.
 
 
 
